@@ -1,2 +1,2 @@
 # AllaV_ICP4
-Zoom recording google drive link: https://drive.google.com/drive/folders/1dPLuum10g-7z3lJbNGuVXjeRFY236igS?usp=drive_link
+Zoom recording google drive link: https://drive.google.com/file/d/1wUjn120oC0WzkF8cSJtgwTlRBNgMAx9k/view?usp=drive_link
